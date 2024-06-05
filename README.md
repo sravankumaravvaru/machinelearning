@@ -7,5 +7,6 @@
  
  ### Video Link
  #### Assignment 01 Link-  https://drive.google.com/file/d/1niZu1lU8t9yNUcsx1yg1jKZMzA50Re2R/view?usp=drive_link
+ #### Assignment 02 Link-  https://drive.google.com/file/d/1Nv8Ku-TsvxXR1JE2MWI2wR-6SoRLeEs8/view?usp=drive_link   
 
  
